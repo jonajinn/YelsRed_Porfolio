@@ -3,7 +3,8 @@ My Sister did her first ever Ui/Ux Design for training in her work. So I'm takin
 
 Ui/Ux Design of my Sister:
 
-![Uploading image.png…]()
+![Yela](https://github.com/jonajinn/YelsRed_Porfolio/assets/92682438/15a800ab-de25-4b00-a7c3-d9e9ffb0b54c)
+
 
 
 Result:
